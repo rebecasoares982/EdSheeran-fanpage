@@ -11,4 +11,5 @@ Este site foi criado como parte do meu portfólio de estudos e oferece uma exper
 
 -------------------------
 
-![edsheeran-fanpage](https://github.com/user-attachments/assets/0f73a4f8-2ba3-4e10-8336-cd23f309e170)
+![edsheeran-fanpage](https://github.com/user-attachments/assets/8fb14ea4-447d-4e11-a656-0f2e407c8a33)
+
